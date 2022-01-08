@@ -1,4 +1,4 @@
-- marlon Mattew Apilado - Team Manager
+- Marlon Mattew Apilado - Team Manager
 -
 -	Has been a consistent performer through out secondary and tertiary education.
 - Highly analytical, technical and driven to succeed and jumpstart a career with the top Esports company of the country.
