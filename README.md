@@ -4,9 +4,11 @@
 - •	Highly analytical, technical and driven to succeed and jumpstart a career with the top BPO company of the country.
 - •	Willing to be technically trained and flexible to meet Client demands while being sensitive and responsive to the changes and needs of the business.
 
+
 - Educational Attainment:
 
-- Lyceum of The Philippines, Manila
+- Lyceum of The Philippines, Manila (2021 - Present) 
+- Currently enrolled in BS in Esports Managment
 
 <!---
 HappyLourd/HappyLourd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
